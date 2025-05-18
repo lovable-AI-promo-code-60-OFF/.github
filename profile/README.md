@@ -1,4 +1,4 @@
- # Lovable AI Promo Code 60%OFF – Unlock Massive Savings on Smart Writing
+ # Lovable AI Promo Code 60%OFF 
 
 Are you looking for an intelligent, efficient, and affordable AI writing assistant? Look no further than **Lovable AI** — a fast-growing tool designed to help writers, marketers, bloggers, and business owners create high-converting content with ease.
 
